@@ -20,6 +20,7 @@ Brian Jonasen, Indiana 50501 Veteran Coordinator
 Email: brian.s.jonasen@gmail.com
 Phone / Text: 240 434 8476
 
+
 ## <a name="faq"></a> FAQ
 
 ### What is 50501 and why should a veteran care?
